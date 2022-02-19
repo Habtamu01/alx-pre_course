@@ -1,1 +1,1 @@
-Hi everyone
+Alx course is great
